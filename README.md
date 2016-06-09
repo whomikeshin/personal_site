@@ -1,1 +1,1 @@
-[Visit Site] (http://michaelkshin.com)
+[Visit Personal Site] (http://michaelkshin.com)
